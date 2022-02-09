@@ -1,3 +1,2 @@
 # assignment
-
-![Screenshot_1644408247](https://user-images.githubusercontent.com/67138166/153197598-9ccf1464-ab51-4c27-8cd8-8802190e8312.png)
+![WhatsApp Image 2022-02-09 at 5 36 55 PM](https://user-images.githubusercontent.com/67138166/153197946-0cd91e44-cc15-4bf3-aaee-c522fa5aad0c.jpeg)
